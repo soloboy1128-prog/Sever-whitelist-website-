@@ -6,4 +6,4 @@ https://t.me/+ICLO8kVes58xY2Y1
 ဒီgroupမာတင်နိုင်ပါတယ်..
 
 sever group 
-t.me/minecraft_family_sever
+https://t.me/minecraft_family_sever
